@@ -1,2 +1,2 @@
 # Jindog-spoon-brother
-<a href="disco칭구.html"> 칭구
+<a href="disco칭구s.html"> 칭구
